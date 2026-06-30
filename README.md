@@ -96,7 +96,7 @@ This project helped me strengthen my understanding of:
 
 **Nabila Alam**
 
-GitHub: https://github.com/nabilaalam05-jpg
+GitHub: https://github.com/nabilaalam
 
 ---
 
